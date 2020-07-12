@@ -1,7 +1,7 @@
 # Basic beatbox patterns for beginners | Tutorial
 
-大家好，这是小白的第一个beatbox视频，要教大家三种基本的beatbox节奏。完成这些节奏你需要模仿三种基本的声音B,T,K。
-想要掌握BTK请参考binibinibeats的视频。
+Hello大家好，我是小白，今天要教大家三种基本的beatbox节奏。完成这些节奏你需要模仿三种基本的声音B,T,K。
+想要掌握BTK请参考这个零基础教学的视频。
 
 每一个节奏我会以正常速度重复两边，再用慢速重复两遍。第一个节奏是这样的：
 
